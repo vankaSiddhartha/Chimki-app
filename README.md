@@ -1,1 +1,1 @@
-# Chimki-app youtube link https://www.youtube.com/watch?v=fxxtcFQMRFw
+# Chimki-app youtube link https://youtu.be/YnlrUkkoaQc
